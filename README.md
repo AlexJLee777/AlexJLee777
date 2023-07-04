@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Alex James Lee
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning Blockchain technology
-- 💞️ I’m looking to collaborate on Team
+- 💞️ I’m seeking long-term job and team works.
 - 📫 Feel free to reach me
 
 <!---
